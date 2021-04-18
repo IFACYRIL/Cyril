@@ -1,2 +1,2 @@
-# Cyril
+# Weternity
 Team of Weternity
