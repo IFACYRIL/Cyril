@@ -1,2 +1,0 @@
-# Weternity
-Team of Weternity
